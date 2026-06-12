@@ -1,4 +1,3 @@
-```html
 <h1>Hill Climb Racing Mod APK – Unlimited Money, Fuel & All Vehicles Unlocked</h1>
 
 <p>If you love physics-based racing games, <a href="http://www.hillcrmapk.com/" target="_blank">Hill Climb Racing Mod APK</a> is one of the most popular modified versions available for Android users. It provides unlimited money, fuel, diamonds, unlocked vehicles, and ad-free gameplay, allowing players to enjoy the complete experience without spending hours grinding for resources.</p>
